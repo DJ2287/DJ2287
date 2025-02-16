@@ -9,3 +9,4 @@ was in restaurants up till covid, construction last 5 years
 
 i like graphic design, cycling, TA stock trading, gaming
 also interested in AI and alternative energy
+fin
